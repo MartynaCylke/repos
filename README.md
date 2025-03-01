@@ -1,0 +1,1 @@
+Repozytorium ktore bedzie zawieralo komendy i linki
